@@ -1,4 +1,5 @@
 # Angie Fausto
+![f1](https://github.com/user-attachments/assets/581320b9-d7f3-4fa7-b110-7a4ba3ceebea)
 
 ### About Me
 I’m from Maryland, and I love anything creative or peaceful, playing instruments, exploring nature, shopping, and learning new things.
