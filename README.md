@@ -8,3 +8,4 @@ I’m from Maryland, and I love anything creative or peaceful, playing instrumen
 Loyola University Maryland
 
 ### Projects
+<img width="868" height="682" alt="Screenshot 2025-11-20 at 2 02 24 PM" src="https://github.com/user-attachments/assets/855d4863-3e97-4798-89d3-2826017977fc" />
